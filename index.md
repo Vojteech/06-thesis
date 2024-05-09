@@ -28,7 +28,7 @@ I wanted the video to match the clothing’s energy and atmosphere and because t
 
 Main element that I used for the film was contrast. I used contrast between black and white, between details shots and bigger scenes and between quick cuts and slower pace.
 
-Lot of the inspiration came from the theoretical part of my thesis where I analyzed history of fashion photography, fashion film and artists like Nick Knight and SHOWstudio which gave me a better picture of how I want my film to look.
+Lot of the inspiration came from the theoretical part of my thesis where I analyzed history of fashion photography, fashion film and artists like Nick Knight and SHOWstudio which gave me a better picture of the fashion scene and helped me to create my own film.
 
 The filming itself was difficult for me which is the reason why I used a lot of street shots that doesn’t include the product. Because I often wonder around with my analog camera and look at world through its lens. So here I did that with a video camera which helped me to work with video media in a way that is more familiar to me.
 
