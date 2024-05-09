@@ -8,7 +8,7 @@ by Vojtech Hanka
 
 - Download [the audio](assets/Hanka_Thesis_Audio.m4a)
 - Download [the slides](assets/Hanka_Thesis_Slides.pdf)
-- Watch [the video](assets/Hanka_Thesis_Video)
+- Watch [the video](assets/Hanka_Thesis_Video.mp4)
 
 Hey, Im Vojtech and I am going to be talking about my bachelor thesis.
 
