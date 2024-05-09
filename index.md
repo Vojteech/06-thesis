@@ -6,7 +6,7 @@ by Vojtech Hanka
 
 2024
 
-- Download [the audio](assets/Hanka_Thesis_Audio)
+- Download [the audio](assets/Hanka_Thesis_Audio.m4a)
 - Download [the slides](assets/Hanka_Thesis_Slides.pdf)
 - Watch [the video](assets/Hanka_Thesis_Video)
 
