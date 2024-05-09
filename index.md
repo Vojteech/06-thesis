@@ -34,4 +34,12 @@ The filming itself was difficult for me which is the reason why I used a lot of 
 
 In the end I created a fashion film that I am proud of and definitely don’t regret my decision to choose this topic. However I see a lot of things that I would like to do differently and better. I learned a lot of things on the way and I am ready to continue creating which Im grateful for.
 
+![Fashion-Film-example-detail](https://github.com/Vojteech/06-thesis/assets/148872005/a8861c77-808d-480f-a032-01e9eb5211ba)
+![Fashion-Film-example-scene-02](https://github.com/Vojteech/06-thesis/assets/148872005/94a14397-0b33-492a-84cb-d811a4285e6e)
+![Fashion-Film-example](https://github.com/Vojteech/06-thesis/assets/148872005/2575d2d4-36d2-4dd7-a97a-217eb4d589c7)
+![Fashion-Film-example-scene](https://github.com/Vojteech/06-thesis/assets/148872005/0c41906a-0851-4184-a7f8-3c742ecfa29b)
+
+
+
+
 Thank you
